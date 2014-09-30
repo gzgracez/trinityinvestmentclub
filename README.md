@@ -1,2 +1,2 @@
-trinityinvestmentclub
+Trinity Investment Club
 =====================
